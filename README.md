@@ -1,0 +1,1 @@
+Adatbázisok 2. kiadott gyakorlati anyagok
